@@ -5,7 +5,7 @@ ____________
 ____________
 
 To pull up and to make incredible progress for your project 
-This is how we handle to hell with source of mission control 
+This is how we handle to help with source of mission control 
 
 Not everyone know how to code , this is simple way to improve us
 How we can hang up to does misscode  does code that doesn't work 
